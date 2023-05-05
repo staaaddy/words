@@ -1,10 +1,1 @@
 Tom Cruise
-Nicole Kidman
-Denzel Washington
-Julia Roberts
-Brad Pitt
-Angelina Jolie
-Will Smith
-Kate Winslet
-Johnny Depp
-Halle Berry
